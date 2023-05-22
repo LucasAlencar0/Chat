@@ -1,5 +1,5 @@
 ## Link 
-https://chat-lucasdamazio09.b4a.run/
+https://chat-lucasdamazio09.b4a.run
 
 # Chat Fake Projeto
 
